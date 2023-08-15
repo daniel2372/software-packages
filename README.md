@@ -1,5 +1,5 @@
 #  **<span style="color:green">Gamo Daniel.</span>**
-### **<span style="color:green">Contacts: +237 676245087<br> **
+### **<span style="color:green">Contacts: +237 676245087<br> 
 ### **Email: dannyjr1569@gmail.com**
 
 
